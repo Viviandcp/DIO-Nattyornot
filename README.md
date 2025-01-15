@@ -13,7 +13,7 @@
 ## 🚀 Resultados
 O episódio é uma reflexão importante sobre as fórmulas prontas para o sucesso e a felicidade e o que realmente importa.
 
-https://web.descript.com/b7759ac7-a912-429a-843d-cf0d12313922
+https://share.descript.com/view/cYJdDpXdQxR 
 
 ## 💭 Reflexão
 O projeto permitiu a criação de um conteúdo profundo de forma rápida e leve.
